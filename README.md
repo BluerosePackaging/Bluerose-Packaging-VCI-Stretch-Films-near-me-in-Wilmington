@@ -1,4 +1,4 @@
-# bluerose packaging | VCI Stretch Films Near Me in Wilmington
+# Bluerose packaging | VCI Stretch Films Near Me in Wilmington
 
 Buy VCI stretch films near me in Wilmington from bluerose packaging. Our corrosion-inhibiting stretch film solutions help businesses protect metal products, machinery components, and industrial equipment during storage and transportation.
 
